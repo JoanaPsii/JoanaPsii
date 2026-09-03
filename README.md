@@ -4,4 +4,4 @@
 
 Ѱ Estágio Curricular realizado na APAV - Casa Abrigo Sophia. 
 
-Ѱ Encontro-me elegível para realizar o Estágio profissional da Ordem dos Psicólogos Portugueses.
+Ѱ Encontro-me elegível para realizar o Estágio Profissional da Ordem dos Psicólogos Portugueses.
